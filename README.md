@@ -1,5 +1,5 @@
-# Community Board - 
-*Top 10 Places to Play Soccer in Doral*
+# Community Board
+# *Top 10 Places to Play Soccer in Doral*
 
 by: **Franklin Neves Filho**
 
